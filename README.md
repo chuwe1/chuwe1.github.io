@@ -1,2 +1,2 @@
-## [Github](https://github.com/chuwe1)
+[Github](https://github.com/chuwe1)
 
